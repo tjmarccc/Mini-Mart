@@ -25,37 +25,6 @@ THE COUNTER ON THE CART SCREEN ICON SHOWS THE TOTAL NUMBER OF EACH OF ITEMS IN T
 THE CHECKOUT BUTTON HAS THE TOTAL AMOUNT DUE. 
 
 
-file:///home/wisdom/Downloads/WhatsApp%20Image%202025-06-11%20at%2013.49.38.jpeg
-
-file:///home/wisdom/Downloads/WhatsApp%20Image%202025-06-11%20at%2013.49.39.jpeg
-
-file:///home/wisdom/Downloads/WhatsApp%20Image%202025-06-11%20at%2013.49.43.jpeg
-
-file:///home/wisdom/Downloads/WhatsApp%20Image%202025-06-11%20at%2013.49.40.jpeg
-
-file:///home/wisdom/Downloads/WhatsApp%20Image%202025-06-11%20at%2013.49.43.jpeg
-
-file:///home/wisdom/Downloads/WhatsApp%20Image%202025-06-11%20at%2013.49.44.jpeg
-
-file:///home/wisdom/Downloads/WhatsApp%20Image%202025-06-11%20at%2013.49.53%20(1).jpeg
-
-file:///home/wisdom/Downloads/WhatsApp%20Image%202025-06-11%20at%2013.49.53.jpeg
-
-file:///home/wisdom/Downloads/WhatsApp%20Image%202025-06-11%20at%2013.49.52.jpeg
-
-file:///home/wisdom/Downloads/WhatsApp%20Image%202025-06-11%20at%2013.49.46.jpeg
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
